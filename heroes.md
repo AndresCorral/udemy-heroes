@@ -9,3 +9,4 @@
 * Volcán Negro
 * Hulk
 * Iron Man
+* Wasp
