@@ -1,3 +1,0 @@
-# Flash
-
-The Flash es una serie de televisión estadounidense desarrollada por Greg Berlanti, Andrew Kreisberg y Geoff Johns para la cadena The CW. El episodio piloto fue dirigido por David Nutter. La historia se basa en el superhéroe de DC Comics, Flash, específicamente en Barry Allen, el segundo individuo en tomar dicha identidad. Se trata además de un spin-off de Arrow, serie de televisión basada en Flecha Verde, por lo cual comparten el mismo universo de ficción.1​2​3​ Fue estrenada el 7 de octubre de 2014.4​ El 21 de octubre de 2014, The CW ordenó una temporada completa de veintitrés episodios.5​
